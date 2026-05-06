@@ -1,4 +1,4 @@
-
+Experience marvel rivals mod menu like never before with ultimate Wall Detection for marvel rivals mod menu - auto-parry and auto-team revive, the #1 wh. Includes auto-parry and
 
 
 
